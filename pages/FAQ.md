@@ -20,4 +20,4 @@ There are eight core objectives that the Foundation is going to work on:
 8. To promote diversity and inclusion in Science, Technology, Education and Management (STEM)
 
 **2. Who can become a member?**
-Four individuals — Nasim Ali, Sailesh Pattanaik, Sailesh Patnaik, Shitikantha Dash, and Shreekant Kedia — that were involved in the foundation of the organization are the Founding Members of the Foundation. The Foundation has an internal policy to accept new member individuals/organizations (as collaborators). If you are interested to join us, please go the JOIN US page and apply. We will get back soon on our decision.
+The Foundation has four Founding Members — Nasim Ali, Sailesh Pattanaik, Sailesh Patnaik, Shitikantha Dash, and Shreekant Kedia — that were involved in the foundation of the organization. We have an internal policy to accept new member individuals/organizations (as collaborators). If you are interested to join us, please go the JOIN US page and apply. We will get back soon on our decision.
